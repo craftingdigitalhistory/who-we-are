@@ -1,11 +1,9 @@
-## My Name:
+## Mursal Yusuf
 
-Mursal Yusuf
-
------
-
+## My Online HQ
+http://gleaningthepast.com/
 
 
-+ [HQ] (http://gleaningthepast.com/)
-+ [GitHub Notebook] (https://github.com/mursalyusuf/Research-Notebook)
+## https://github.com/mursalyusuf/Research-Notebook.git
 
+Feel Free to add me on Fb https://Facebook.com/Mursalc
